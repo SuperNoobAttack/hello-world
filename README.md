@@ -6,3 +6,5 @@ https://imgur.com/cPMpuRm
 idk
 
 this probably won't work anyway
+ 
+here are some changes damnit!
